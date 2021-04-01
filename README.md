@@ -1,2 +1,2 @@
 # https://faidi27.blogspot.com
-#fahidi #faidi
+#Mohammmad Fahidi Riyadi
